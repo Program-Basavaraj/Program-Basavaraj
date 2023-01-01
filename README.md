@@ -4,14 +4,14 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-I Am Intrested in the Java,SQL,C#,HTML,CSS,JavaScript.
+The Important Way at Good In The Programming is Here....
 -----------------------------------------------------------
 ![images](https://user-images.githubusercontent.com/93095238/210180685-911f2833-9f6c-45d6-a2b5-d7fce555ffd1.png)
 ![download](https://user-images.githubusercontent.com/93095238/210180693-b7d567a4-01ea-4031-8bb4-9f0054b34de8.png)
 ![images](https://user-images.githubusercontent.com/93095238/210180974-4b737095-8ab8-4c9f-b272-a2b30389e734.jpg)
 
 -------------------------------------------------------------------------
-I Have Some Idea In The Frontend Technology, In the HTML, CSS, Javascript.
+I Have Some Idea in The Frontend Technology, In the HTML, CSS, Javascript.
 
 ![download](https://user-images.githubusercontent.com/93095238/210180261-6278fdf6-edb3-43e6-b98c-b82f69b9fbb2.png)
 ![download](https://user-images.githubusercontent.com/93095238/210180297-a920b7b9-9484-49b5-8ea4-2d046b83d0c9.png)
